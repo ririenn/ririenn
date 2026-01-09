@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://github.com/user-attachments/assets/da4e0794-6a74-4ce1-b9f1-16fb15b286d8" width="70" style="vertical-align: middle;"/> <img src="https://readme-typing-svg.demolab.com?font=Merriweather&size=40&pause=1200&color=E4688E&center=true&vCenter=true&width=600&lines=HAIHAI!!;WELCOME+TO+MY+GITHUB<3"/> <img src="https://github.com/user-attachments/assets/da4e0794-6a74-4ce1-b9f1-16fb15b286d8" width="70" style="vertical-align: middle; transform: scaleX(-1);"/>
+<img src="https://github.com/user-attachments/assets/da4e0794-6a74-4ce1-b9f1-16fb15b286d8" width="40" style="vertical-align: middle;"/> <img src="https://readme-typing-svg.demolab.com?font=Merriweather&size=40&pause=1200&color=E4688E&center=true&vCenter=true&width=600&lines=HAIHAI!!;WELCOME+TO+MY+GITHUB<3"/> <img src="https://github.com/user-attachments/assets/da4e0794-6a74-4ce1-b9f1-16fb15b286d8" width="40" style="vertical-align: middle; transform: scaleX(-1);"/>
 </div>
 
 <div align="center">
