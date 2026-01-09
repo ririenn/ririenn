@@ -1,5 +1,11 @@
 <div align="center">
 
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Merriweather&size=40&pause=1200&color=E4688E&center=true&vCenter=true&width=600&lines=HAIHAI!!;WELCOME+TO+MY+GITHUB<3)
+
+</div>
+
+<div align="center">
+
 [𐙚Strawpage𐙚](https://meowblub.straw.page/)
 <div align="center">
 
