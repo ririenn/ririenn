@@ -13,8 +13,12 @@
        𝘒𝘢𝘮𝘪𝘴𝘢𝘮𝘢 𝘒𝘪𝘴𝘴!! 
 <img width="1450" height="736" alt="1000221616" src="https://github.com/user-attachments/assets/5f7cea2c-a2fc-423b-8575-ba5e9717b8dd" />
 
-
-  
+<div align="center">
+𐔌՞. .՞𐦯 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 𐔌՞. .՞𐦯
+       
+     🎀𝓚𝓲𝓽 - 𝓛𝓲𝓵𝓲🎀
+     𝘓𝘰𝘷𝘦 𝘛𝘩𝘳𝘰𝘶𝘨𝘩 𝘈 𝘗𝘳𝘪𝘴𝘮!! 
+<img width="1308" height="736" alt="1000229251" src="https://github.com/user-attachments/assets/23dd997d-88cf-439a-8a57-8397082fbce8" />
 
          
 
