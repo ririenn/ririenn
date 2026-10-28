@@ -4,9 +4,6 @@
 
 <div align="center">
 
-[𐙚Strawpage𐙚](https://meowblub.straw.page/)
-<div align="center">
-
 <div align="center">
 
 [𐙚Sign Ata𐙚](https://ririeenflou.atabook.org/)
