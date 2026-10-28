@@ -3,6 +3,8 @@
 </div>
 
 <div align="center">
+<div align="center">
+<img width="180" height="180" alt="1000314054" src="https://github.com/user-attachments/assets/404234f0-e8b6-4e46-9e8a-ac01c265f98c" />
 
 <div align="center">
 
