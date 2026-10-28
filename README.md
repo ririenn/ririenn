@@ -33,6 +33,8 @@
     A Stepmother Märchen!!
 <img width="2000" height="1414" alt="1000313995" src="https://github.com/user-attachments/assets/67309080-61dc-483f-ac96-c69121676921" />
 
-         
+<div align="center">
+       
+𐔌՞. .՞𐦯 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 𐔌՞. .՞𐦯         
 
          
