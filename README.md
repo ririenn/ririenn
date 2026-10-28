@@ -24,7 +24,8 @@
        
      🎀𝓚𝓲𝓽 - 𝓛𝓲𝓵𝓲🎀
      𝘓𝘰𝘷𝘦 𝘛𝘩𝘳𝘰𝘶𝘨𝘩 𝘈 𝘗𝘳𝘪𝘴𝘮!! 
-<img width="1080" height="1350" alt="1000229298" src="https://github.com/user-attachments/assets/42b25b98-db9c-4259-a59f-0fd8d227eca5" />
+<img width="2000" height="1414" alt="1000314007" src="https://github.com/user-attachments/assets/1c7115e5-fc9a-4bf2-9a64-7b3799d4ce3a" />
+
 
 <div align="center">
        
