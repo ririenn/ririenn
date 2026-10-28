@@ -26,6 +26,13 @@
      𝘓𝘰𝘷𝘦 𝘛𝘩𝘳𝘰𝘶𝘨𝘩 𝘈 𝘗𝘳𝘪𝘴𝘮!! 
 <img width="1080" height="1350" alt="1000229298" src="https://github.com/user-attachments/assets/42b25b98-db9c-4259-a59f-0fd8d227eca5" />
 
+<div align="center">
+       
+𐔌՞. .՞𐦯 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 𐔌՞. .՞𐦯
+
+    🎀𝓝𝓸𝓻𝓪 - 𝓢𝓱𝓾𝓻𝓲🎀
+    A Stepmother Märchen!!
+<img width="2000" height="1414" alt="1000313995" src="https://github.com/user-attachments/assets/67309080-61dc-483f-ac96-c69121676921" />
 
          
 
