@@ -13,8 +13,8 @@
 
 𐔌՞. .՞𐦯 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 𐔌՞. .՞𐦯
 
-       🎀𝓣𝓸𝓶𝓸𝓮 - 𝓝𝓪𝓷𝓪𝓶𝓲🎀
-       𝘒𝘢𝘮𝘪𝘴𝘢𝘮𝘢 𝘒𝘪𝘴𝘴!! 
+    🎀𝓣𝓸𝓶𝓸𝓮 - 𝓝𝓪𝓷𝓪𝓶𝓲🎀
+     𝘒𝘢𝘮𝘪𝘴𝘢𝘮𝘢 𝘒𝘪𝘴𝘴!! 
 <img width="1450" height="736" alt="1000221616" src="https://github.com/user-attachments/assets/5f7cea2c-a2fc-423b-8575-ba5e9717b8dd" />
 
 <div align="center">
@@ -37,4 +37,11 @@
        
 𐔌՞. .՞𐦯 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 𐔌՞. .՞𐦯         
 
-         
+    🎀𝓒𝓪𝓼𝓼𝓲𝓼 - 𝓡𝓸𝔁𝓪𝓷𝓪🎀
+     Roxana!! 
+<img width="2000" height="1414" alt="1000314154" src="https://github.com/user-attachments/assets/67bd1653-a5e1-412b-b956-21744fdf5e59" />
+
+<div align="center">
+       
+𐔌՞. .՞𐦯 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ 𐔌՞. .՞𐦯         
+
